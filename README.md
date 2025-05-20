@@ -4,7 +4,7 @@
 💬 Love creating new and creative projects!<br/> 
 🖋️ Trying to learn one new thing everyday<br/> 
 🔗 Connect with either through instagram or linkedIn<br/> 
-[Instagram](https://www.instagram.com/jaden.s.lee/#)<> 
+[Instagram](https://www.instagram.com/jaden.s.lee/#)<br/> 
 [LinkedIn](www.linkedin.com/in/jaden-lee-b7461b337)
 
 
