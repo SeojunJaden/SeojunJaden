@@ -1,4 +1,4 @@
-## Hi, I'm Jaden Lee 
+## Hi, I'm Jaden Lee!
 
 Cognitive Science student at UCSD<br/>
 Love creating new and creative projects!<br/> 
